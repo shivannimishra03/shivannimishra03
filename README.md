@@ -14,7 +14,7 @@
 - 💬 Ask me about ** Development **
 
 
-- 📄 Resume [https://drive.google.com/file/d/1VQdpDVeY5Ps8MJnLIdgHSBh_RmSFHWGD/view?usp=drivesdk]
+- 📄 Resume [https://drive.google.com/file/d/1c4idE27ouVgOplewL2ITOt1E0pxUYrts/view?usp=drivesdk]
 
 <br>
 
